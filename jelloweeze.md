@@ -1,3 +1,0 @@
-# Jelloweeze
-## Eezie
-### Weezie
